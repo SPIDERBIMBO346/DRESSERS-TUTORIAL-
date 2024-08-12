@@ -1,0 +1,2 @@
+PARA ENTENDER ESTO ES MEJOR VER EL TUTORIAL QUE ESTA EN MI CANAL DE YT:
+https://youtube.com/@spiderbimbo346?si=WwgowFA-QyJuQSl1
